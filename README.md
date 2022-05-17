@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ko no Hana da！
-可以叫我艾哲赤赤
+可以叫我艾哲赤赤💀
 入的坑比较多，现在在JOJO，二部厨，史特雷厨，什么cp都可以（除了Lisa史特（👈但是反过来可以
 雷承花仗露茸米（你嗑随意不要cue我
 twitter：@teleway_Cl2
